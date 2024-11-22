@@ -39,7 +39,7 @@
 | 5   | **1WIN CASINO**                          | [🎯 👉 **ПЕРЕЙТИ СЮДА** 👈 🎯](https://brandplay.link/smXVpBbG)                                      | Высокие лимиты, продуманный интерфейс 🎯      | ⭐⭐⭐⭐      |
 | 6   | **DRIP CASINO**                          | [💎 👉 **ПЕРЕЙТИ СЮДА** 👈 💎](https://drp-ircp01.com/c07e6a3db)                                      | Отличные джекпоты, честная игра 💎            | ⭐⭐⭐⭐      |
 
-![Evolution Gaming](https://www.evolution.com/wp-content/uploads/2022/06/evolution-logo.png)
+![Evolution Gaming](https://i.pinimg.com/originals/76/fc/57/76fc57a7c1d5d9d0fd7fa29316c36f6e.jpg)
 
 ## Почему Evolution Gaming?
 
